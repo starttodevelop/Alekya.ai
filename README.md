@@ -1,1 +1,0 @@
-# Alekya.ai
